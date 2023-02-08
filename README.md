@@ -6,3 +6,5 @@
 - 🌱 I’m currently learning **Java, C#, Kotlin, Bash scripts, SQL, Pyhton, courses, etc.**
 
 - ⚡ Fun fact: **I love tea 🍵 instead coffee ☕.**
+
+- 📧 How to reach me:https://www.linkedin.com/in/liabatlle/
