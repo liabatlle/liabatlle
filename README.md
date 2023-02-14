@@ -7,4 +7,4 @@
 
 - ⚡ Fun fact: **I love tea 🍵 instead coffee ☕.**
 
-- 📧 How to reach me:https://www.linkedin.com/in/liabatlle/
+- 📧 How to reach me: https://www.linkedin.com/in/liabatlle/
